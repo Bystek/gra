@@ -1,0 +1,1 @@
+<a href="http://www.abckawy.pl/do_biura,lk,48,ls,58.html"><img src="/userfiles/image/ekspresy/royal/_Royal%20one%20touch%20cappuccino%202.jpg" alt="" width="112" height="150"></a><img alt="" src="/gra/Tux.jpg" width="95" height="130"></a>
